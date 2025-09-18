@@ -3,7 +3,7 @@
 ![Banner](https://i.imgur.com/N0Aih0B.jpeg)
 
 **You can contact me here :arrow_lower_left:**</br>
-[![linkedin](https://img.shields.io/badge/LINKEDIN-blue)](https://www.linkedin.com/in/lautaro-rodriguez-b87237329/) [![instagram](https://img.shields.io/badge/INSTAGRAM-purple)](https://www.instagram.com/h0raaaa/) [![email](https://img.shields.io/badge/EMAIL-grey)](https://mail.google.com/mail/u/0/?ogbl#inbox?compose=GTvVlcSHwsFDFJTpQjsTHzGdsVHmwkZpBgPTQZLdhSVFWvnFhXGCkRRQCFKkXZjwvwGFFvkDwNHXq)
+[![LINKEDIN](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge)](https://www.linkedin.com/in/lautaro-rodriguez-b87237329/) [![INSTAGRAM](https://img.shields.io/badge/INSTAGRAM-purple?style=for-the-badge)](https://www.instagram.com/h0raaaa/) [![EMAIL](https://img.shields.io/badge/EMAIL-grey?style=for-the-badge)](https://mail.google.com/mail/u/0/?ogbl#inbox?compose=GTvVlcSHwsFDFJTpQjsTHzGdsVHmwkZpBgPTQZLdhSVFWvnFhXGCkRRQCFKkXZjwvwGFFvkDwNHXq)
 
 ---
 ## About me:
