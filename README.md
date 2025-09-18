@@ -5,6 +5,10 @@
 **You can contact me here :arrow_lower_left:**</br>
 [![LINKEDIN](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge)](https://www.linkedin.com/in/lautaro-rodriguez-b87237329/) [![INSTAGRAM](https://img.shields.io/badge/INSTAGRAM-purple?style=for-the-badge)](https://www.instagram.com/h0raaaa/) [![EMAIL](https://img.shields.io/badge/EMAIL-grey?style=for-the-badge)](https://mail.google.com/mail/u/0/?ogbl#inbox?compose=GTvVlcSHwsFDFJTpQjsTHzGdsVHmwkZpBgPTQZLdhSVFWvnFhXGCkRRQCFKkXZjwvwGFFvkDwNHXq)
 
+>[!NOTE]
+>**Correos de contacto** </br>
+>:e-mail: lautaro.rodriguez.r.v.2005@gmail.com </br>
+>:e-mail: lautarorodriguez919@gmail.com </br>
 ---
 ## About me:
 <table>
